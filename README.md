@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **ashishchetry860@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1pwMtC6TV6_VsMOQ9op3XsWv92_D4tiZJ/view?usp=drive_link](https://drive.google.com/file/d/1pwMtC6TV6_VsMOQ9op3XsWv92_D4tiZJ/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1pwMtC6TV6_VsMOQ9op3XsWv92_D4tiZJ/view?usp=drive_link]([https://drive.google.com/file/d/1pwMtC6TV6_VsMOQ9op3XsWv92_D4tiZJ/view?usp=drive_link](https://drive.google.com/file/d/1ZcgvI8kkpUpPt4TD36wcaClf84RyyTfy/view?usp=drive_link))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
